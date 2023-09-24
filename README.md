@@ -12,4 +12,5 @@ I made this for fun, if you use please give credits to Ryzbe, or Saber Garage!
 
 # SHOWCASE 
 
-https://imgur.com/a/rI8oo0w
+[**Join our discord** ❤️](https://discord.gg/GM6WGbKxpm)
+![IMG1](https://i.imgur.com/XqRI3PL.png)
